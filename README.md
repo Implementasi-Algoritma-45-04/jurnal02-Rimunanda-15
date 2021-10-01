@@ -1,5 +1,5 @@
 # Jurnal Modul 02
 
-NIM: 
+NIM: 670621310
 
-Nama: 
+Nama: Rimunanda Ma'arif Parinduri
